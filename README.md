@@ -1,1 +1,0 @@
-# wolga_maket
